@@ -1,4 +1,4 @@
-👋 Hi, I’m @bspeakman
+👋 Hi, I’m @bspeakman  
 👀 I’m interested in Football (the round ball type) and data
 
 I'm just building this as a way to publish some stuff I am interested with to get my stuff out there a bit more.
